@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered new token sniper bot | bundle-transactions + private-RPC-nodes, the #1 new token sniper bot. Includes bundle-transactions and
 
 
 
